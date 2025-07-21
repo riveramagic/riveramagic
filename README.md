@@ -1,4 +1,4 @@
-hi im amari read my [strawpages](https://worstleon.straw.page/) or smth idk - db2 and dbd fans int with me i beg
+hi im amari read my [strawpages](https://worstleon.straw.page/) or smth idk (db2 and dbd fans int with me i beg)
 
 <sub>also i have no fuckign clue how to make one of these things the intention was not for this to look pretty dont worry</sub>
 
