@@ -1,5 +1,5 @@
 hi im amari read my [strawpages](https://worstleon.straw.page/) or smth idk
-**i have NO clue how to make one of these do not expect it to look good thanks**
+## **i have NO clue how to make one of these do not expect it to look good thanks**
 
 
 
