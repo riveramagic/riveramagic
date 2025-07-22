@@ -7,11 +7,11 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/b1329b88-9aab-4a9b-96ba-3b81bb236e58" />
+  <img src="https://github.com/user-attachments/assets/7242df12-2cb0-4619-838a-addccaa494f1"
 </p>
 
----
-
+<br />
+  
 <p align="center">
 hi uhh i go by a lot of diff names so if you see me being called smth different than usual thats y!! most people ik call me amari though!!!! 
 </p>
@@ -19,13 +19,15 @@ hi uhh i go by a lot of diff names so if you see me being called smth different 
 <p align="center">
   i use he/him strictly and my discord is hathie
 </p>
-  
----
-  
-</p>
+
+  <br />
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/7242df12-2cb0-4619-838a-addccaa494f1"
+────────────────────────────────────────
 </p>
+  <br />
+  
+</p>
+
 
 <p align="center">
     <img src="https://github.com/user-attachments/assets/ce52f2a1-735c-47ff-8285-46a71713c011" >
@@ -46,9 +48,9 @@ https://pronouns.cc/@riveramagic
 </p>
 
 <br />
-
-
-
+<p align="center">
+───♡───
+</p>
 <br />
 
 <p align="center">
@@ -79,12 +81,18 @@ DNI - 18+, -13, basic dni, heavily nsfw jokes, idk js be normal pls
 </p>
 
 <br />
-<br />
 
+
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/b1329b88-9aab-4a9b-96ba-3b81bb236e58" />
+</p>
+<br />
 <p align="center">
   <img src="https://github.com/user-attachments/assets/fbf03ed0-4757-4720-aa4d-c236f86df309" />
 </p>
 <br />
+
+
 
 <p align="center">
 i miss the old daybreak 2 section i dont even know anyone in this pic
