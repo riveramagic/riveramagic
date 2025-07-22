@@ -10,6 +10,7 @@
   <img src="https://github.com/user-attachments/assets/b1329b88-9aab-4a9b-96ba-3b81bb236e58" />
 </p>
 
+---
 
 <p align="center">
 hi uhh i go by a lot of diff names so if you see me being called smth different than usual thats y!! most people ik call me amari though!!!! 
@@ -19,7 +20,7 @@ hi uhh i go by a lot of diff names so if you see me being called smth different 
   i use he/him strictly and my discord is hathie
 </p>
   
-<br />
+---
   
 </p>
 <p align="center">
