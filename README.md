@@ -6,9 +6,21 @@
   <img src="https://github.com/user-attachments/assets/b54716be-0b5a-4066-9b58-cfa3593298b7" />
 </p>
 
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/b1329b88-9aab-4a9b-96ba-3b81bb236e58" />
+</p>
+
 
 <p align="center">
-hi uhh i go by a lot of diff names so if you see me being called smth different than usual thats y!! most people call me __amari__ though, i use he/him strictly and 
+hi uhh i go by a lot of diff names so if you see me being called smth different than usual thats y!! most people ik call me amari though!!!! 
+</p>
+
+<p align="center">
+  i use he/him strictly and my discord is hathie
+</p>
+  
+<br />
+  
 </p>
 <p align="center">
   <img src="https://github.com/user-attachments/assets/7242df12-2cb0-4619-838a-addccaa494f1"
@@ -33,11 +45,9 @@ https://pronouns.cc/@riveramagic
 </p>
 
 <br />
-<br />
 
----
 
-<br />
+
 <br />
 
 <p align="center">
@@ -47,34 +57,37 @@ INT - daybreak 2, dead by daylight, resident evil, the quarry, silent hill, unti
 
 <p align="center">
 DNI - 18+, -13, basic dni, heavily nsfw jokes, idk js be normal pls
-</p>
+  
+<br />
+
+
+  
+<br />
+<br />
+
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/236b76e8-8d97-472e-8151-38f04c8c5eb9"
 </p>
-<br />
-<br />
-<br />
+  
 <br />
 <br />
 
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/b54716be-0b5a-4066-9b58-cfa3593298b7" />
+</p>
 
+<br />
+<br />
 
----
-<br />
-<br />
-<br />
-<br />
-<br />
 <p align="center">
   <img src="https://github.com/user-attachments/assets/fbf03ed0-4757-4720-aa4d-c236f86df309" />
 </p>
+<br />
 
 <p align="center">
 i miss the old daybreak 2 section i dont even know anyone in this pic
 </p>
 
 
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/b54716be-0b5a-4066-9b58-cfa3593298b7" />
-</p>
+
