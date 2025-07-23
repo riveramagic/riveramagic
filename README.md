@@ -87,6 +87,7 @@ DNI - 18+, -13, basic dni, heavily nsfw jokes, idk js be normal pls
   <img src="https://github.com/user-attachments/assets/b1329b88-9aab-4a9b-96ba-3b81bb236e58" />
 </p>
 <br />
+
 <p align="center">
   <img src="https://github.com/user-attachments/assets/fbf03ed0-4757-4720-aa4d-c236f86df309" />
 </p>
@@ -95,8 +96,8 @@ DNI - 18+, -13, basic dni, heavily nsfw jokes, idk js be normal pls
 
 
 <p align="center">
-i miss the old daybreak 2 section i dont even know anyone in this pic
+bring back the old daybreak section NOW!!!
 </p>
-
+<br />
 
 
