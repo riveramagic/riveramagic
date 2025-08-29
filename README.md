@@ -1,11 +1,7 @@
-
-
 <p align="center">
-    <img src="https://github.com/user-attachments/assets/8d038af4-4fbc-4d28-8ce9-e08e17090409" >
+    <img src="https://github.com/user-attachments/assets/424434eb-6efd-44a2-a1d1-1ba3521dadc4" >
 </p>
-
   
-<br />
 <br />
 
 **✈︎ LINKS**
@@ -66,3 +62,10 @@
 * (artists) _**los campesinos!**_, ptv, sws, **thrice**, evanescence, three days grace, pigeon pit, big theif, etc
   
 * (other) drawing, watching movies, writing!!!!, my orchestra <sup>violist because you wanna know that sooo badly (i hate this instrument)<sup>
+
+<br />
+
+<p align="center">
+    <img src="https://github.com/user-attachments/assets/8d038af4-4fbc-4d28-8ce9-e08e17090409" >
+</p>
+
