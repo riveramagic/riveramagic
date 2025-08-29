@@ -22,7 +22,7 @@
 <br />
 
 
-**⚠︎ BYF**
+**⚠︎ BEFORE YOU INTERACT**
 
 1. _huuuge_ amari taymiyyah kinnie and copinglink do not shit on my goat amari taymiyyah
 
@@ -40,7 +40,7 @@
 
 <br />
 
-**꩜ ABT**
+**꩜ ABOUT ME**
 
 * im amari (or wtvr else) and i use he/him strictly (no she/her ever)
   
@@ -57,10 +57,12 @@
 
 <br />
 
-**𝄡 INTERESTS** <sub>(more on s.p)<sub>
+**𝄡 INTERESTS/LIKES** <sub>(more on s.p)<sub>
 
 * (games) _**dbd**_, **re**, **silent hill**, _**daybreak2**_, _**the quarry**_, _**a way out**_, until dawn, _life is strange_, etc
 
 * (artists) _**los campesinos!**_, ptv, sws, **thrice**, evanescence, three days grace, pigeon pit, big theif, etc
   
 * (ships) _**sanityvagrant/jonasamari**_, **emari**, rylan, pricefield, **cleon**, ghostfrank <sup>and a bunch of other ships w/ amari taymiyyah but thats a very long list<sup>
+
+* (other) drawing, watching movies, writing!!!!, my orchestra <sup>violist because you wanna know that sooo badly (i hate this instrument)<sup>
