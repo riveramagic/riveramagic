@@ -1,103 +1,66 @@
-<p align="center">
-<sup>i have NO clue how to make one of these bro this is so ass<sup>
-</p>
-
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/b54716be-0b5a-4066-9b58-cfa3593298b7" />
-</p>
-
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/7242df12-2cb0-4619-838a-addccaa494f1"
-</p>
-
-<br />
-  
-<p align="center">
-hi uhh i go by a lot of diff names so if you see me being called smth different than usual thats y!! most people ik call me amari though!!!! 
-</p>
-
-<p align="center">
-  i use he/him strictly and my discord is hathie
-</p>
-
-  <br />
-<p align="center">
-────────────────────────────────────────
-</p>
-  <br />
-  
-</p>
 
 
 <p align="center">
-    <img src="https://github.com/user-attachments/assets/ce52f2a1-735c-47ff-8285-46a71713c011" >
-    <img src="https://github.com/user-attachments/assets/e819b24d-d82d-4707-8132-f3fc35e4c87a" >
-    <img src="https://github.com/user-attachments/assets/a6c7c867-3bb0-44ee-984e-9d63d2c02ca3" >
+    <img src="https://github.com/user-attachments/assets/8d038af4-4fbc-4d28-8ce9-e08e17090409" >
 </p>
-</p>
-
-
-<br />
-
-<p align="center">
-https://worstleon.straw.page
-</p>
-
- <p align="center">
-https://pronouns.cc/@riveramagic
-</p>
-
-<br />
-<p align="center">
-───♡───
-</p>
-<br />
-
-<p align="center">
-INT - daybreak 2, dead by daylight, resident evil, the quarry, silent hill, until dawn, a way out (more on sp)
-</p>
-
-
-<p align="center">
-DNI - 18+, -13, basic dni, heavily nsfw jokes, idk js be normal pls
-  
-<br />
-
 
   
 <br />
 <br />
 
+**✈︎ LINKS**
 
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/236b76e8-8d97-472e-8151-38f04c8c5eb9"
-</p>
+[straw.page](https://worstleon.straw.page/)
+
+[pronouns.cc](https://pronouns.cc/@riveramagic)
+
+
+<br />
+
+──── ⸝⸝
+
+<br />
+
+
+**⚠︎ BYF**
+
+1. _huuuge_ amari taymiyyah kinnie and copinglink do not shit on my goat amari taymiyyah
+
+2. mentally ill, iwc at all times
+
+3. a lot of topics make me severely uncomfortable <sup>but ill probably never bring it up coz thats like.....awkward....<sup>
+
+4. autistic and selective mute (+ other disorders), pleaaassse try to be patient w me sometimes
+
+5. i dont like nicknames from strangers that much but if i know you feel free !!!
+
+<br />
+
+──── ⸝⸝
+
+<br />
+
+**꩜ ABT**
+
+* im amari (or wtvr else) and i use he/him strictly (no she/her ever)
   
-<br />
-<br />
+* im a minor!!! please do not be weird!!!!!!
+  
+* people call me a bunchhhh of diff names because i GO by a bunch of diff names !!!
+* feel free to call me anything on my prns.cc or honestly any character i like!!! i love collecting my favs as names
 
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/b54716be-0b5a-4066-9b58-cfa3593298b7" />
-</p>
+* ^ if you dont know what to call me feel free to ask or just call me amari !!!!
 
-<br />
-
-
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/b1329b88-9aab-4a9b-96ba-3b81bb236e58" />
-</p>
 <br />
 
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/fbf03ed0-4757-4720-aa4d-c236f86df309" />
-</p>
+──── ⸝⸝
+
 <br />
 
+**𝄡 INTERESTS** <sub>(more on s.p)<sub>
 
+* (games) _**dbd**_, **re**, **silent hill**, _**daybreak2**_, _**the quarry**_, _**a way out**_, until dawn, _life is strange_, etc
 
-<p align="center">
-bring back the old daybreak section NOW!!!
-</p>
-<br />
-
-
+* (artists) _**los campesinos!**_, ptv, sws, **thrice**, evanescence, three days grace, pigeon pit, big theif, etc
+  
+* (ships) _**sanityvagrant/jonasamari**_, **emari**, rylan, pricefield, **cleon**, ghostfrank <sup>and a bunch of other ships w/ amari taymiyyah but thats a very long list<sup>
