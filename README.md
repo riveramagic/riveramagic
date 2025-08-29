@@ -61,8 +61,8 @@
 
 * (games) _**dbd**_, **re**, **silent hill**, _**daybreak2**_, _**the quarry**_, _**a way out**_, until dawn, _life is strange_, etc
 
-* (artists) _**los campesinos!**_, ptv, sws, **thrice**, evanescence, three days grace, pigeon pit, big theif, etc
-  
 * (ships) _**sanityvagrant/jonasamari**_, **emari**, rylan, pricefield, **cleon**, ghostfrank <sup>and a bunch of other ships w/ amari taymiyyah but thats a very long list<sup>
 
+* (artists) _**los campesinos!**_, ptv, sws, **thrice**, evanescence, three days grace, pigeon pit, big theif, etc
+  
 * (other) drawing, watching movies, writing!!!!, my orchestra <sup>violist because you wanna know that sooo badly (i hate this instrument)<sup>
